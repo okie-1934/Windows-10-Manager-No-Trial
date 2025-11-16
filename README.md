@@ -1,0 +1,1 @@
+# Windows-10-Manager-No-Trial
